@@ -1,1 +1,1 @@
-Backend engineer from southern Sweden, with interests in all things computers and gaming.
+Backend engineer from southern Sweden, with interests in all things related to computers and computing.
